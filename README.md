@@ -1,6 +1,6 @@
 # Community Classroom is OP
 
 - Kunal Kushwaha says that this community is amazing.
+- Prashant Malviya Says : Kunal's Tutorials are amazing.
 - More power to kunal. love the work which your are doing for the community.
--Prashant Malviya - Kunal's tutorials are amazing
 - Anirudh Sharma finds the Community Classroom initiative really great!
